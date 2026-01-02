@@ -62,3 +62,41 @@ Anyị bụ ndị ọrụ Okeke nke oge a. Anyị bụ ụmụ Ojukwu, zoro n'�
 Anyị bụ Mmepe Dị Umeala.
 
 Egwu anyị amalitela!
+
+***
+
+**OKWU MKPUCHI: I, NNADOZIE, NA-EKWU**
+*(CLOSING WORDS: I, NNADOZIE, SPEAK)*
+
+Aha m bụ Nnadozie Ekenechukwu Okeke! Ọrụ m agwụla!
+*(My name is Nnadozie Ekenechukwu Okeke! My work is finished!)*
+
+Oge erugo ka e nye m Ikenga m!
+*(It is time for my Ikenga to be given to me!)*
+
+Leenu, arụchaara m ya n'afọ iri atọ! Ọtụtụ afọ n'ihu ndị bu m ụzọ: onye a na-amaghị nke ndị Juu, Siddhartha onye Buddha, Jizọs onye Katọlik, na Muhammad onye Alakụba, ndị na-arụchaghị nke ha ruo mgbe ha nwụrụ!
+*(Look, I finished it at the age of 30! Many years ahead of my predecessors: the Unknown of the Jews, Siddhartha the Buddha, Jesus the Catholic, and Muhammad the Muslim, who did not finish theirs until the ages they died!)*
+
+Ana m achị Jizọs ọchị! Onye ọbụna ọnwụ ya bụ aghụghọ ahịa ka ndị Europe wee nabata ozizi ya—ma lee, ha ahapụla ya ọzọ!
+*(I laugh at Jesus! Whose very death was a marketing trick for the Europeans to accept his teaching—and look, they have already abandoned it again!)*
+
+Ma, ana m achị ọchị n'umeala, n'ihi na enwetara m enyemaka.
+*(But, I laugh in humility, because I had help.)*
+
+Ejiri m teknụzụ 'cold archival' nke ndị ọcha—nke sitere na 'alternative rock', elektrọniki, na fotoniki—nke ha jiri sayensị kọmputa ha mee ka ọ dị ndụ, mee ka ọrụ m gaa ọsọ ọsọ.
+*(I used the 'cold archival' technology of the white people—born of alternative rock, electricity, and photonics—brought to life by their ingenious computer science, to accelerate my work.)*
+
+N'eziokwu, na-enweghị nka nke 'guilds' ha nke ha na-akpọ 'companies', agaraghị m eji akụ na ụba, ọgụgụ isi, na ihe nketa mụ na ya so wee rụọ ọrụ a naanị m.
+*(In truth, without the skill of their guilds which they call 'companies', I could never have done this work alone with the limited wealth, intelligence, and cultural inheritance I was granted at birth.)*
+
+Ma ana m ekele Chukwu na m chetara aha m na otu esi abụ ya! Ekele dịrị Chukwu n'ezie!
+*(But I thank God that I remembered my name and how to sing it! Thanks be to God indeed!)*
+
+Unu chetara egwu atụrụ ahụ m bụrụ, tupu m gawa njem mbụ m na UK? Kedu ka m gaara esi mara na mkpụrụ obi m na-agụsi agụụ ike icheta abụ ezinụlọ m? Na ọ bụ omenala abụ anyị debere na Katọlik mere m jiri mee ya?
+*(Do you remember the sheep song I sang, before I left for my first trip to the UK? How could I have known that my soul was yearning to remember my family song? That it was the tradition of song we retained in Catholicism that compelled me?)*
+
+Gịnịkwa ka m buuru, ma debe ruo taa? Foto nne m na nna m, ka m na-echetara onwe m onye m bụ mgbe ndụ na-achọ ịdọpụ uche m n'ọrụ ndụ m.
+*(And what did I carry with me, and keep till now? A portrait of my mother and father, to remind myself of who I am when life tries to distract me from my life's work.)*
+
+Ọ rụọla ọrụ. Nne na nna m aghọọla ndị eze n'anya m ọzọ, n'ihi na echetara m aha m!
+*(It has worked. My parents have become royalty in my eyes again, because I remember my name!)*
