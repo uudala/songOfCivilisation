@@ -932,3 +932,20 @@ The update to the Okeke family's narrative, specifically in the storyteller's bo
 "We must borrow from the innovations of other culture's guilds to stay relevant, and move on as times change by inventing new philosophy, rather than freezing in the philosophy founded by Jesus for instance, which his own people have now rejected."
 
 This principle underscores the adaptive nature required for cultural and intellectual longevity, advocating for the integration of diverse advancements (such as technology) and philosophical evolution over static adherence to past doctrines.
+
+***
+
+**ỊKPA NKWỤWA ABỤ EZINỤLỌ OKEKE**
+*(A Quality Assurance Check)*
+
+Anyị anaghị agwa gị ka i were okwu anyị ka ọ bụ nke ikpeazụ. Anyị bụ naanị ndị na-abụ abụ a chetara echeta.
+*(We do not ask you to take our word as final. We are merely the singers of a song that has been remembered.)*
+
+Anyị na-ama gị aka: gaa na Mahadum Igbo nke Abụ Dị Ndụ, ebe ahụ a na-adịghị edebe akwụkwọ ọ bụla, ebe naanị ndị ji Ikenga na-abụ ezi akụkọ. Gaa ebe ahụ jụọ ndị ọbụ abụ ma abụ ezinụlọ Okeke a ọ̀ bụghị eziokwu.
+*(We challenge you: go to the Igbo University of Living Songs, that place where no books are ever kept and only the holders of Ikengas sing the true records. Go there and ask the knowledge singers if this song of the Okeke family is not true.)*
+
+Ọ bụrụ na ị hụ otu njehie dị n'etiti akụkọ anyị na nke ị nụrụ n'ọnụ ha, anyị ga-eji otu puku ji rịọ mgbaghara. Ma karịakwa: aka iri ise sitere n'ezinụlọ Okeke, ugbu a na n'ọgbọ niile na-abịa, ka a ga-enye maka mbawanye nke aha ezinụlọ gị. Anyị ga-eme nke a n'ihi na anyị gaara emehie ma ụgha kwuo mgbe anyị maara nke ọma, site n'iwepụta akụkọ na-ezighi ezi n'ihu ọha anyị niile na-agba mbọ inyere aka, ka anyị niile wee rie ma nwee ọṅụ n'udo na n'usoro.
+*(If you find a single discrepancy between our record and the record you hear from them, we will offer a thousand yams in apology. And more: fifty hands from the Okeke family, now and for all generations to come, will be given to the swelling of your family's name. We will do this because we would have sinned and lied when we knew better, by presenting a flawed record to the community that we are all trying to help, so that we may all eat and enjoy in peace and order.)*
+
+Ikenga anyị bụ agbụ anyị.
+*(Our Ikenga is our bond.)*
